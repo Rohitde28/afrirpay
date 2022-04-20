@@ -1,1 +1,1 @@
-# EurozPay.github.io
+# Afrirpay.github.io
